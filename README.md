@@ -38,4 +38,4 @@ To build strong engineering skills, create meaningful technical projects, and wo
 
 ---
 
-‎ . ݁⋆ ۶ৎ ݁˖ . ݁ *Learning, building, and reaching beyond Earth — one project at a time.*‎ . ݁⋆ ۶ৎ ݁˖ . ݁
+‎              *‎ . ݁⋆ ۶ৎ ݁˖ . ݁Learning, building, and reaching beyond Earth — one project at a time.‎ . ݁⋆ ۶ৎ ݁˖ . ݁*‎ 
